@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @IdentiTizz
-- 👋I am a client developer of Ruin Network.
+- 👋I am a Owner of Ruin Network.
 - 👋We are affiliated with Ruin Network LLC
